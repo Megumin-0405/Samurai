@@ -1,2 +1,0 @@
-hogefuga
-＃meguminn
